@@ -1,1 +1,1 @@
-# o-mundo-m-gico
+# o-mundo-magico
